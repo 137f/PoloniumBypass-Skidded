@@ -52,6 +52,8 @@ https://github.com/soneca7
 
 **Instagram: @glowwz9**
 
+https://discord.gg/cyberclient
+
 **E-mail: vliyanie1337@proton.me**
 
 
